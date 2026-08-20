@@ -1,1 +1,1 @@
-# Tu-compa-ero-de-estudio
+# Tu-compañero-de-estudio
